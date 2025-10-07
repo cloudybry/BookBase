@@ -49,6 +49,8 @@ Bryan John Berzabal
 
 BSIT Graduate | Philippine Christian University
 
+Philippines
+
 Aspiring DevOps Engineer | Software Engineer
 
 bryanbrzbl@gmail.com
